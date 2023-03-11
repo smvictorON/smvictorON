@@ -1,4 +1,4 @@
 ![image](https://github.com/smvictorON/smvictorON/blob/master/dino.gif)
 
-⚡ Quando a internet voltar dê uma olhada nos projetos. ⚡
+⚡ When the internet comes back, please, take a look at my repositories. ⚡
 
